@@ -1,3 +1,3 @@
 # Hola Mundo
 
-[![hola-mundo.png](https://i.postimg.cc/wBgY7t3f/hola-mundo.png)](https://postimg.cc/k21pHgQK)
+[![darksoulspage.png](https://i.postimg.cc/FHrzRYHV/darksoulspage.png)](https://postimg.cc/zVQ82XWy)
